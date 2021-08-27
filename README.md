@@ -1,1 +1,1 @@
-# Covid-Free-Trial-Class
+# Covid Free-Trial Class
